@@ -1,5 +1,3 @@
-# gitpractice
-
 # Some Brandon-Inspired Git Practice
 Fill in your answer and add a question!
 
