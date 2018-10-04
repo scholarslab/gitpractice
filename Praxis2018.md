@@ -18,7 +18,7 @@ Cho: Free
 
 ## What song has gotten stuck in your head recently?
 Catherine: "Elephant Gun" by Beirut. Those trumpets are so catchy!!!
-Cho: "Hill" by Jonathan Lee.
+Cho: 500 Miles, The Brothers Four.
 
 ## Who is your favorite TV show character?
 Cho: Sheldon Cooper (The Big Bang theory)
