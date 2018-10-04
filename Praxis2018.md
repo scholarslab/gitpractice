@@ -20,4 +20,5 @@ Cho: Free
 Catherine: "Elephant Gun" by Beirut. Those trumpets are so catchy!!!
 Cho: "Hill" by Jonathan Lee.
 
-## 
+## Who is your favorite TV show character?
+Cho: Sheldon Cooper (The Big Bang theory)
