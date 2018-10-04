@@ -14,6 +14,10 @@ Cho: Romeo + Juliet (1996), I have not watched many 20th century movies.
 ## Describe childhood in one word:
 Shane: Snooty
 Catherine: Plaid
+Cho: Free
 
 ## What song has gotten stuck in your head recently?
 Catherine: "Elephant Gun" by Beirut. Those trumpets are so catchy!!!
+Cho: "Hill" by Jonathan Lee.
+
+## 
