@@ -56,7 +56,8 @@ Fill in your answer and add a question!
 * Mathilda: Any shop in Mumbai that serves real South Indian filter coffee
 
 ## What's the most recent dream you remember?
-
+* Shane: I was driving in a drab, nightmarish Boston that had these looping highway overpasses over a waterworld-esque expanse and worried about getting back to Charlottesville in time for Code Lab.
 
 ## What is your go-to comfort food?
 * Eleanore: MAC & CHEESE!
+* Shane: Scallion pancakes or petit canelés
