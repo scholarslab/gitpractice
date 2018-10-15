@@ -53,6 +53,7 @@ Fill in your answer and add a question!
 * Eleanore: Waking up on a Saturday (when not in grad school) realizing you don't have to get up and then going back to sleep
 
 ## Speaking of coffee (or tea, if you prefer), where is your favorite place to drink it?
+* Shane: Espresso Vivace in Seattle, the best coffee city in the world.
 * Mathilda: Any shop in Mumbai that serves real South Indian filter coffee
 
 ## What's the most recent dream you remember?
