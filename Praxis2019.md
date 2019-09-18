@@ -3,6 +3,7 @@ Fill in your answers to each question, then  add a question and answer it!
 
 ## Who makes the best tacos in town?
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor
+* Brandon: Whatever Shane does not like.
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
