@@ -23,6 +23,7 @@ Fill in your answers to each question, then  add a question and answer it!
 
 ## What are your five favorite things?
 * Amanda: dogs, stories (books but also other media with stories e.g. videogames), spending time with friends, making websites, waking up early yet well rested
+* Shane: dogs, stories, spending time with friends, leaving Jeremy do the CSS, not sleeping ever  
 * Brandon: chocolate chip cookies warm, gooey, and with milk; animals; warm days with a nice breeze; playing/listening to music; time with friends
 * Lauren: reading fiction, autumn, bread, foxes, friends
 * Janet: Julie Andrews, dark chocolate, dogs, singing, trees
@@ -30,7 +31,9 @@ Fill in your answers to each question, then  add a question and answer it!
 ## What are your three favorite places you've visited?
 * Janet: Yukon, Canada; Cyprus; Tunisia
 * Lauren: Glacier National Park (MT), Tuscany, small Michigan lakefront town on Lake Michigan
+* Shane: Tunisia, Cuba, Italian Alps.
 
 ## Favorite hiking spots in or near Cville?
 * Lauren: This is my question and I am selfishly polling the community so TBD as I begin hiking more.
 * Janet: Humpback Rock (I love the historic homestead community you get to walk through before the hike); Crabtree Falls; and I'm doing a new one this weekend (Doyle's River and Jones Run Trail in Shenandoah) 
+* Shane: I'm going to risk some ire and say that all the wilderness areas in central Virginia look pretty much the same.
