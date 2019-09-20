@@ -33,3 +33,4 @@ Fill in your answers to each question, then  add a question and answer it!
 
 ## Favorite hiking spots in or near Cville?
 * Lauren: This is my question and I am selfishly polling the community so TBD as I begin hiking more.
+* Janet: Humpback Rock (I love the historic homestead community you get to walk through before the hike); Crabtree Falls; and I'm doing a new one this weekend (Doyle's River and Jones Run Trail in Shenandoah) 
