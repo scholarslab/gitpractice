@@ -16,7 +16,7 @@ Fill in your answers to each question, then  add a question and answer it!
 * Shane: Best is obviously Texas. Iowa and New Mexico are runner-ups. Worst is Idaho, which incredibly contains the phrase "State of Idaho" twice.
 * Amanda: I find the flags that contain the state's written name kind of endearing? Rating the racist flags worst (overt racist references, e.g. Maryland, Mississippi; at least four flags that chose to represent the entire state via two white people, e.g. New Jersey, New York, Virginia, Wisconsin).
 * Brandon: I have no thoughts on flags. My petition to get Virginia to put Pepper on their flag continues to be denied, and I refuse to recognize it until they do. 
-* Janet: My home state of Massachusetts. It's boring and it basically looks like someone is taking a sword to an Algonquisn Native American who is offering peace. 
+* Janet: My home state of Massachusetts is the worst. It's boring and it basically looks like someone is taking a sword to an Algonquisn Native American who is offering peace. I like the Louisiana state flag because of the pelicans.
 
 ## What are your five favorite things?
 * Amanda: dogs, stories (books but also other media with stories e.g. videogames), spending time with friends, making websites, waking up early yet well rested
