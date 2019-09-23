@@ -32,8 +32,10 @@ Fill in your answers to each question, then  add a question and answer it!
 * Janet: Yukon, Canada; Cyprus; Tunisia
 * Lauren: Glacier National Park (MT), Tuscany, small Michigan lakefront town on Lake Michigan
 * Shane: Tunisia, Cuba, Italian Alps.
+* Amanda: A tiny forest with very old, very tall trees on the edge of the University of Victoria (British Columbia) campus, sleeping over in the (Chicago) Museum of Science & Industry, getting lost in the Château Frontenac in Quebec
 
 ## Favorite hiking spots in or near Cville?
 * Lauren: This is my question and I am selfishly polling the community so TBD as I begin hiking more.
 * Janet: Humpback Rock (I love the historic homestead community you get to walk through before the hike); Crabtree Falls; and I'm doing a new one this weekend (Doyle's River and Jones Run Trail in Shenandoah) 
 * Shane: I'm going to risk some ire and say that all the wilderness areas in central Virginia look pretty much the same.
+* Amanda: haven't been to any, but Humpback Rock sounds cool, and I would like to hike more!
