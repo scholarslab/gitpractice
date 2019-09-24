@@ -48,4 +48,4 @@ Fill in your answers to each question, then  add a question and answer it!
 
 ## What's the book/essay/article you wish you'd written?
 * Natasha: Rebecca Solnit's essay, The Blue of Distance, and the book it's in, A Field Guide to Getting Lost. And basically anything by Rebecca Solnit.
-* Shane: Merritt Roe Smith's Harpers Ferry Armory and the New Technology 
+* Shane: Merritt Roe Smith's *Harpers Ferry Armory and the New Technology*
