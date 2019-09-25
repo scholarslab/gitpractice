@@ -59,5 +59,6 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 * Connor: Bryant Simon's *The Hamlet Fire: A Tragic Story of Cheap Food, Cheap Government and Cheap Lives* was really pretty amazing. Also, *Inventing the "American Way": The Politics of Consensus from the New Deal to the Civil Rights Movement*
 
 ## Who plays you in your upcoming bio-pic?
-*Connor: Joseph Gordon Levitt. Obviously. 
+* Connor: Joseph Gordon Levitt. Obviously. 
+* Natasha: I've been told I bear a resemblance to Tamsin Greig (British comedian - watch Black Books if you haven't). Otherwise, I have no idea - but they'd need to have tatts and unruly hair.
 
