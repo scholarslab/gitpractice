@@ -71,8 +71,10 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 * Natasha: I've been told I bear a resemblance to Tamsin Greig (British comedian - watch Black Books if you haven't). Otherwise, I have no idea - but they'd need to have tatts and unruly hair.
 * Lauren: Hmmmmmmm, Brie Larson maybe.
 * Chloe: Claire Danes [one million question marks]
+* Janet: Natalie Portman
 
 ## What's your favorite TV series of all time and/or currently?
 * Chloe: The Office still makes me laugh out loud every episode. Currently enjoying the newest take on Queen Victoria. 
 * Connor: I'm a big fan of the Inspector Lewis (Also Morse, also Endeavour) series on PBS. Used to watch them with my Dad!
 * Lauren: PUSHING DAISIES!!
+* Janet: Schitt's Creek
