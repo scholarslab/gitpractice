@@ -78,3 +78,4 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 * Connor: I'm a big fan of the Inspector Lewis (Also Morse, also Endeavour) series on PBS. Used to watch them with my Dad!
 * Lauren: PUSHING DAISIES!!
 * Janet: Schitt's Creek
+* Natasha: It's a total tie between The Americans and Transparent.
