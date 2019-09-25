@@ -74,3 +74,4 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 
 ## What's your favorite TV series of all time and/or currently?
 * Chloe: The Office still makes me laugh out loud every episode. Currently enjoying the newest take on Queen Victoria. 
+* Connor: I'm a big fan of the Inspector Lewis (Also Morse, also Endeavour) series on PBS. Used to watch them with my Dad!
