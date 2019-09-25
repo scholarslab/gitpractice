@@ -63,7 +63,7 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 * Janet: I can't think of an author, but I wish I was Sondheim's librettist.
 * Shane: Merritt Roe Smith's *Harpers Ferry Armory and the New Technology*
 * Connor: Bryant Simon's *The Hamlet Fire: A Tragic Story of Cheap Food, Cheap Government and Cheap Lives* was really pretty amazing. Also, *Inventing the "American Way": The Politics of Consensus from the New Deal to the Civil Rights Movement*
-* Lauren: I'm diving straight to fiction because that's the origin of my passion for reading...I love anything written in the vein of magical realism. So rather than any specific book, I wish I could produce fiction ~like~ the magical realists I adore.
+* Lauren: I'm diving straight to fiction because that's the origin of my passion for reading...I love anything written in the vein of magical realism. So rather than any specific book, I wish I could produce fiction like the magical realists I adore.
 * Chloe: Not a great answer, but to be able to create another world like C.S. Lewis' or Tolkein's would be an interesting accomplishment.
 
 ## Who plays you in your upcoming bio-pic?
@@ -75,3 +75,4 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 ## What's your favorite TV series of all time and/or currently?
 * Chloe: The Office still makes me laugh out loud every episode. Currently enjoying the newest take on Queen Victoria. 
 * Connor: I'm a big fan of the Inspector Lewis (Also Morse, also Endeavour) series on PBS. Used to watch them with my Dad!
+* Lauren: PUSHING DAISIES!!
