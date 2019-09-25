@@ -57,8 +57,9 @@ Connor: Florence (Italy), Charlelvoix (Canada), Aran Islands (Ireland)
 * Janet: I can't think of an author, but I wish I was Sondheim's librettist.
 * Shane: Merritt Roe Smith's *Harpers Ferry Armory and the New Technology*
 * Connor: Bryant Simon's *The Hamlet Fire: A Tragic Story of Cheap Food, Cheap Government and Cheap Lives* was really pretty amazing. Also, *Inventing the "American Way": The Politics of Consensus from the New Deal to the Civil Rights Movement*
+* Lauren: I'm diving straight to fiction because that's the origin of my passion for reading...I love anything written in the vein of magical realism. So rather than any specific book, I wish I could produce fiction ~like~ the magical realists I adore.
 
 ## Who plays you in your upcoming bio-pic?
 * Connor: Joseph Gordon Levitt. Obviously. 
 * Natasha: I've been told I bear a resemblance to Tamsin Greig (British comedian - watch Black Books if you haven't). Otherwise, I have no idea - but they'd need to have tatts and unruly hair.
-
+* Lauren: Hmmmmmmm, Brie Larson maybe.
