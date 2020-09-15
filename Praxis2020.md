@@ -5,7 +5,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor.
 * Brandon: I will defer to Shane's clear authority in this matter.
 * Aaron: 
-* Crystal:
+* Crystal: When I ate meat I loved El Tako Nako's lengua tacos. Currently big fan of Michoacana's Taqueria's veg tacos.
 * Elise: 
 * Emma: 
 * Grace: 
