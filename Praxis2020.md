@@ -15,3 +15,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Shane: Best are obviously Texas and New Mexico. Iowa is also pretty good! Worst is Idaho, which incredibly contains the phrase "State of Idaho" twice.
 
 ## What's your favorite bad movie?
+* Shane: The Net (1995)
