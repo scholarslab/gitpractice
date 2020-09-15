@@ -4,6 +4,12 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## Who makes the best tacos in town?
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor.
 * Brandon: I will defer to Shane's clear authority in this matter.
+* Aaron: 
+* Crystal:
+* Elise: 
+* Emma: 
+* Grace: 
+* Savanna: 
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
