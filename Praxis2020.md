@@ -20,7 +20,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Crystal: Dinotopia (2002)
-* Savanna: Doppleganger (1993)
+* Savanna: Doppelganger (1993)
 
 ## What's a spot in the world you haven't been, but would really like to visit?
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali).
