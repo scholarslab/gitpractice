@@ -9,7 +9,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Elise: 
 * Emma: 
 * Grace: 
-* Savanna: The tacos I make. Not because they're good or culinary masterpieces but because I don't have to see other people in the process of obtaining them. :) Also I don't know where to get good tacos in Charlottesville anyways? I live near Barracks and the options over yonder are limiting in that regard. 
+* Savanna: The tacos I make. Not because they're good or culinary masterpieces but because I don't have to see other people in the process of obtaining them. :) Also I don't know where to get good tacos in Charlottesville... I live near Barracks and the options over yonder are limiting in that regard. These suggestions are awesome!
 
 ## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
 * Shane: Best are obviously Texas and New Mexico. Iowa is also pretty good! Worst is Idaho, which incredibly contains the phrase "State of Idaho" twice.
