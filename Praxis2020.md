@@ -22,10 +22,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Crystal: Dinotopia (2002)
 * Savanna: Doppleganger (1993)
 
-<<<<<<< HEAD
-### What's a spot in the world you haven't been, but would like to visit the most?
-* Savanna: What a great question! I'm 1000% OBSESSED with Bali, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome? Salzburg, Austria (my fam is from Italy and Austria, so that would be cool)? I would also love to see the Bagan temples in Myanmar.
-=======
 ## What's a spot in the world you haven't been, but would really like to visit?
+* Savanna: What a great question! I'm 1000% OBSESSED with Bali, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome? Salzburg, Austria (my fam is from Italy and Austria, so that would be cool)? I would also love to see the Bagan temples in Myanmar.
 
-#### If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
+## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
