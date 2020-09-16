@@ -27,4 +27,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
 
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
-* Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen. 
+* Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop). 
