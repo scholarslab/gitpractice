@@ -24,5 +24,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's a spot in the world you haven't been, but would really like to visit?
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali).
+* Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
 
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
+* Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen. 
