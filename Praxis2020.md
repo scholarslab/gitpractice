@@ -7,7 +7,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Aaron: 
 * Crystal:
 * Elise: 
-* Emma: 
+* Emma: Brazos? Although I don't live in Charlottesville!
 * Grace: 
 * Savanna: 
 
