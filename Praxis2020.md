@@ -3,7 +3,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Who makes the best tacos in town?
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor.
-* Brandon: I will defer to Shane's clear authority in this matter.
+* Brandon: I will defer to Shane's clear authority in this matter. LIAR I NEVER SAID THIS
 * Aaron: La Michoacana Tacqueria is the bessst! 
 * Crystal: When I ate meat I loved El Tako Nako's lengua tacos. Currently big fan of Michoacana Taqueria's veg tacos.
 * Elise: I don't believe in tacos outside of Texas
