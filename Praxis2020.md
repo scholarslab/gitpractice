@@ -6,7 +6,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Brandon: I will defer to Shane's clear authority in this matter.
 * Aaron: La Michoacana Tacqueria is the bessst! 
 * Crystal: When I ate meat I loved El Tako Nako's lengua tacos. Currently big fan of Michoacana Taqueria's veg tacos.
-* Elise: 
+* Elise: I don't believe in tacos outside of Texas
 * Emma: Brazos? Although I don't live in Charlottesville! This was the place some older art history PhD students took me when I visited campus for the first time, so there's some nostalgia involved. 
 * Grace: 
 * Savanna: The tacos I make. Not because they're good or culinary masterpieces but because I don't have to see other people in the process of obtaining them. :) Also I don't know where to get good tacos in Charlottesville... I live near Barracks and the options over yonder are limiting in that regard. These suggestions are awesome!
