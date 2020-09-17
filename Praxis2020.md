@@ -34,3 +34,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
+* Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
