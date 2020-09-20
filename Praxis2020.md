@@ -21,17 +21,22 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Shane: The Net (1995)
 * Crystal: Dinotopia (2002)
 * Savanna: Doppelganger (1993)
+    (also, Emma, remind me to tell you about the time I once spent 15 minutes during a seminar desperately trying to explain the artistic merits of the movie Clue much to my classmates' dismay)
 * Emma: My favorite movie is a bad movie: Clue (1985).
 
 ## What's a spot in the world you haven't been, but would really like to visit?
-* Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali).
+* Savanna: I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali... where there is an active volcano. Just saying, Crystal!).
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
 * Emma: Two on my longtime bucket list are Iceland (though I despair of ever learning Icelandic) and New Zealand. I was once a few weeks away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna!
 
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
 * Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop).
 * Emma: I've been listening to this podcast lately called "Dolly Parton's America," so I'm going to have to go "Jolene" on this one.
+* Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
+* Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. 
+
+
