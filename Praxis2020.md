@@ -17,13 +17,15 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Savanna: I'm kind of into Alaska's, not gonna lie, though New Mexico's is stellar. Rhode Island's is the worst, or maybe the best. Instead of seeing "hope" I read "nope" which is simultaneously iconic and just sad. 
 * Emma: I'm from Georgia originally, and our flag is boring but not terrible or offensive (like Mississippi's, which is the worst, though I hear folks are actively trying to change it). I LOVE Alaska's flag. After TAing a class called "Art and Astronomy" last year, I'm mildly obsessed with stars.
 * Elise: The only right answer is Texas 
+* Brandon: I like the magnolia flag that Mississippi is considering.
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Crystal: Dinotopia (2002)
 * Savanna: Doppelganger (1993)    
 (also, Emma, remind me to tell you about the time I once spent 15 minutes during a seminar desperately trying to explain the artistic merits of the movie Clue much to my classmates' dismay)
 * Emma: My favorite movie is a bad movie: Clue (1985).
-* Elise: Yongary: Monster from the Deep (1967), an Awful Movie Night classic 
+* Elise: Yongary: Monster from the Deep (1967), an Awful Movie Night classic
+* Brandon: Anything with Nicolas Cage in it. I learned last night that he was the top choice for the lead role in Eternal Sunshine of the Spotless Mind. 
 ## What's a spot in the world you haven't been, but would really like to visit?
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali).
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
