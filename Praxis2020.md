@@ -63,15 +63,6 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing.
 * Grace: I’m very basic, scent-wise—give me a good autumn-themed Yankee candle and I’m set! What’s weird is that there are some scents everyone seems to love but I absolutely can’t stand—that Mrs. Meyers soap everybody goes gaga for makes me want to throw up. I want to like it because so many people I know use it, but I can’t!
 
-## If you were a kitchen utensil/kitchen object in general, which would you be and why?
-* Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great 
-* Aaron: This question is great. Maybe a steamer basket of sorts.
-* Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
-* Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
-* Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family.
-* Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
-* Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing. 
-
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
 * Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
 * Aaron: This question is great. Maybe a steamer basket of sorts. 
