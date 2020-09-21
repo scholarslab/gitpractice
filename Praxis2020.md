@@ -38,12 +38,14 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Emma: I've been listening to this podcast lately called "Dolly Parton's America," so I'm going to have to go "Jolene" on this one.
 Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 * Elise: I have a recurring daydream in which I absolutely crush T-Pain's "Buy You a Drank" (if only lol), but I would also love to give "Alone" by Heart a go...or, depending on what hour of the night, I would definitely go for some Shania Twain
-* Brandon: 
+* Brandon: "The Shane Song"
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
 * Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family.
-* Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
+* Elise: Pretty sure scents are somehow my love language, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
+* Brandon: warm chocolate chip cookies
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
 * Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
+* Brandon: Instant pot
 ## What cat from Cats are you?
