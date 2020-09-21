@@ -34,6 +34,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop).
 * Emma: I've been listening to this podcast lately called "Dolly Parton's America," so I'm going to have to go "Jolene" on this one.
 Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
+* Elise: I have a recurring daydream in which I absolutely crush T-Pain's "Buy You a Drank" (if only lol), but I would also love to give "Alone" by Heart a go...or, depending on what hour of the night, I would definitely go for some Shania Twain
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
