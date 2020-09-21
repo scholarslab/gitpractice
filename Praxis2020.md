@@ -16,8 +16,13 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Crystal: I like Alaska's, which is nice and simple, and Oregon's, because the beaver is cute. I feel like saying Maryland's is my least favorite, mostly because  Marylanders are so obsessed with it.
 * Savanna: I'm kind of into Alaska's, not gonna lie, though New Mexico's is stellar. Rhode Island's is the worst, or maybe the best. Instead of seeing "hope" I read "nope" which is simultaneously iconic and just sad. 
 * Emma: I'm from Georgia originally, and our flag is boring but not terrible or offensive (like Mississippi's, which is the worst, though I hear folks are actively trying to change it). I LOVE Alaska's flag. After TAing a class called "Art and Astronomy" last year, I'm mildly obsessed with stars.
+<<<<<<< HEAD
 * Elise: The only right answer is Texas
 * Aaron: Okay this is a difficult question because I love flags. AZ, CA, OH, & NM get special mention. MD has to be the best though. Though that may only be until MS adopts the magnolia flag (still pending). 
+=======
+* Elise: The only right answer is Texas 
+* Brandon: I like the magnolia flag that Mississippi is considering.
+>>>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Crystal: Dinotopia (2002)
@@ -25,23 +30,37 @@ Fill in your answers to each icebreaker question, then add a question and answer
 (also, Emma, remind me to tell you about the time I once spent 15 minutes during a seminar desperately trying to explain the artistic merits of the movie Clue much to my classmates' dismay)
 * Emma: My favorite movie is a bad movie: Clue (1985).
 * Elise: Yongary: Monster from the Deep (1967), an Awful Movie Night classic
+<<<<<<< HEAD
 * Aaron: Not a huge fan of movies so bad they're good. If I think of one I'll come back to this. 
+=======
+* Brandon: Anything with Nicolas Cage in it. I learned last night that he was the top choice for the lead role in Eternal Sunshine of the Spotless Mind. 
+>>>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
 ## What's a spot in the world you haven't been, but would really like to visit?
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali).
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
 * Emma: Two on my longtime bucket list are Iceland (though I despair of ever learning Icelandic) and New Zealand. I was once a few weeks away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna!
 * Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or make a trip to the Faroe Islands or somewhere equally remote and dreary. 
+<<<<<<< HEAD
 * Aaron: Oh yes great question! Right now Georgia and Armenia are probably top of my list. Also eventually Morocco, Ireland, Polynesia. 
+=======
+* Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the pandemic happened.
+
+>>>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
 * Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop).
 * Emma: I've been listening to this podcast lately called "Dolly Parton's America," so I'm going to have to go "Jolene" on this one.
 Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 * Elise: I have a recurring daydream in which I absolutely crush T-Pain's "Buy You a Drank" (if only lol), but I would also love to give "Alone" by Heart a go...or, depending on what hour of the night, I would definitely go for some Shania Twain
+<<<<<<< HEAD
 * Aaron: Probably something by Celine Dion tbh. I grew up on that. 
+=======
+* Brandon: "The Shane Song"
+>>>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
 * Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family.
+<<<<<<< HEAD
 * Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing. 
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
@@ -50,3 +69,13 @@ Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (ext
 
 ## If you could have an unlimited amount of anything, what would it be? 
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
+=======
+* Elise: Pretty sure scents are somehow my love language, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
+* Brandon: warm chocolate chip cookies
+## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
+* Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
+* Brandon: Instant pot
+## What cat from Cats are you?
+* Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
+
+>>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
