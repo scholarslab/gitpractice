@@ -41,7 +41,7 @@ make a trip to the Faroe Islands or somewhere equally remote and dreary.
 * Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the 
 pandemic happened.
 * Grace: Vienna! I was going to try to plan a trip there in the next few years, but then the pandemic happened and….lol, who knows anymore. I’ve already been to Rome, but I would love to go back. 
-
+* Shane: Lofoten Islands, Patagonia, that Shiba Inu Sweet Potato stand in Hokkaido.
 
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why?
 * Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop). 
@@ -50,8 +50,9 @@ pandemic happened.
 Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher 
 * Elise: I have a recurring daydream in which I absolutely crush T-Pain's "Buy You a Drank" (if only lol), but I would also love to give "Alone" by Heart a go...or, depending on what hour of the night, I would definitely go for some Shania Twain 
 * Aaron: Probably something by Celine Dion tbh. I grew up on that. 
-* Brandon: "The Shane Song"
+* Brandon: "The Shane Song" [Ed.-I don't know what this is.]
 * Grace: I once sang “What’s Up” by Four Non Blondes at a karaoke bar in Little Rock, Arkansas that turned out to be filled with semi-professional karaoke singers preparing for an upcoming competition. Because it’s such a weird, cherished memory, I would love to do it again! Another thing the pandemic ruined—I was always trying to get people to go do karaoke with me in Charlottesville, but alas.
+* Shane: "The People are the Heroes Now" from Adams's *Nixon in China*
 
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
@@ -61,6 +62,7 @@ Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing.
 * Grace: I’m very basic, scent-wise—give me a good autumn-themed Yankee candle and I’m set! What’s weird is that there are some scents everyone seems to love but I absolutely can’t stand—that Mrs. Meyers soap everybody goes gaga for makes me want to throw up. I want to like it because so many people I know use it, but I can’t!
+* Shane: I think probably some kind of food aroma, for the standard reasons. Maybe Tunisian harrisa? Or that evergreen Beijing street food favorite, spicy cumin lamb skewers.
 
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
 * Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
@@ -68,15 +70,17 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Grace: Whoever wrote this question—we are soulmates! I used to do college interviews for prospective applicants, and this was the “wacky fun question” I would ask at the end of the interview. I would say that I’m a frying pan—I’m useful for a lot of stuff, and if you mess up doing things with another fancier method, I can always find a way to pull together the wreckage and make things work. Sometimes I get lost in the kitchen cabinets, though, and it takes a little effort to find me!
 * Brandon: Instant pot
 * Crystal: Microwave, because I'm there for you in a gentle, nonjudgmental way when it's 2am and you're microwaving Cup O' Noodles
+* Shane: Coffee grinder is the obvious answer because I love coffee and precision machinery, but maybe also a propane torch because fire is pretty cool.
 
 ## If you could have an unlimited amount of anything, what would it be?
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
 * Brandon: warm chocolate chip cookies
 * Grace: Diet peach snapple!!
 * Crystal: Chewing gum
+* Shane: Unlimited time would be a neat trick, but if we're talking about material things then maybe geothermal energy?
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
 * Grace: I've never seen Cats, but I need to so badly!
 * Crystal: Heart says Jellylorum, brain says Jennyanydots 
-
+* Shane: Based only on my favorite bad movie podcast's episode on the movie, Jennyanydots.
