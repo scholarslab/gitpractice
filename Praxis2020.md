@@ -39,8 +39,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna! * Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or 
 make a trip to the Faroe Islands or somewhere equally remote and dreary. 
 * Aaron: Oh yes great question! Right now Georgia and Armenia are probably top of my list. Also eventually Morocco, Ireland, Polynesia. 
-* Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the 
-pandemic happened.
+* Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the pandemic happened.
 * Grace: Vienna! I was going to try to plan a trip there in the next few years, but then the pandemic happened and….lol, who knows anymore. I’ve already been to Rome, but I would love to go back. 
 
 
@@ -58,8 +57,7 @@ Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed! 
 * Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. 
-* Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a 
-favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
+* Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing.
 * Grace: I’m very basic, scent-wise—give me a good autumn-themed Yankee candle and I’m set! What’s weird is that there are some scents everyone seems to love but I absolutely can’t stand—that Mrs. Meyers soap everybody goes gaga for makes me want to throw up. I want to like it because so many people I know use it, but I can’t!
 
@@ -68,15 +66,19 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Aaron: This question is great. Maybe a steamer basket of sorts. 
 * Grace: Whoever wrote this question—we are soulmates! I used to do college interviews for prospective applicants, and this was the “wacky fun question” I would ask at the end of the interview. I would say that I’m a frying pan—I’m useful for a lot of stuff, and if you mess up doing things with another fancier method, I can always find a way to pull together the wreckage and make things work. Sometimes I get lost in the kitchen cabinets, though, and it takes a little effort to find me!
 * Brandon: Instant pot
+* Emma: A thermometer. They're precise and versatile, and also metaphorically they can read the room pretty well. I like to think I can tell how those around me are feeling, though that's harder over Zoom! 
 
 ## If you could have an unlimited amount of anything, what would it be?
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
 * Brandon: warm chocolate chip cookies
 * Grace: Diet peach snapple!!
+* Emma: Rufus snuggles
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
 * Grace: I've never seen Cats, but I need to so badly!
+* Emma: I like musicals, but unfortunately I just don't know Cats at all. Briefly skimming the plot on Wikipedia... I'm not a Theatre Cat but "Gus" as short for "Asparagus" is amazing.
 
 ## What's your most (harmless) embarassing moment?
 * Grace: I once fell down an entire set of bleachers at a high school football game as a freshman!
+* Emma: So, I faint semi-regularly. It's a genetic thing, and it's led to some pretty embarassing moments. I fainted off a horse when I was 4. I fainted outside a library in divinity school. When I broke my wrist last December I fainted because it hurt, which is NOT HELPFUL.
