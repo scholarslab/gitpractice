@@ -64,7 +64,7 @@ Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (ext
 * Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing. 
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
-* Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something grea
+* Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
 * Aaron: This question is great. Maybe a steamer basket of sorts. 
 
 ## If you could have an unlimited amount of anything, what would it be? 
