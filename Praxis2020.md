@@ -29,12 +29,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Emma: My favorite movie is a bad movie: Clue (1985). 
 * Elise: Yongary: Monster from the Deep (1967), an Awful Movie Night classic
 * Aaron: Not a huge fan of movies so bad they're good. If I think of one I'll come back to this. 
-<<<<<<< HEAD
 * Brandon: Anything with Nicolas Cage in it. I learned last night that he was the top choice for the lead role in Eternal Sunshine of the Spotless Mind. 
-=======
-* Brandon: Anything with Nicolas Cage in it. I learned last night that he was the top choice for the lead role in Eternal Sunshine of the Spotless Mind.
-* Grace: Oh God, too many to name! Right now, it’s the movie adaptation of Dan Brown’s Inferno (2013), which I love because it’s bad in so many fascinating ways. When I was a kid, though, it was absolutely Crossroads (2002) starring Britney Spears. I had it on DVD and I used to make any new friend who slept over my house watch it, in what simultaneously functioned as both a bonding and a hazing exercise?
->>>>>>> 0ab0ca26a396dd27e1beda2ed36d893283b330bc
 
 ## What's a spot in the world you haven't been, but would really like to visit?
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali). 
@@ -72,18 +67,16 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Aaron: This question is great. Maybe a steamer basket of sorts. 
 * Grace: Whoever wrote this question—we are soulmates! I used to do college interviews for prospective applicants, and this was the “wacky fun question” I would ask at the end of the interview. I would say that I’m a frying pan—I’m useful for a lot of stuff, and if you mess up doing things with another fancier method, I can always find a way to pull together the wreckage and make things work. Sometimes I get lost in the kitchen cabinets, though, and it takes a little effort to find me!
 * Brandon: Instant pot
+* Crystal: Microwave, because I'm there for you in a gentle, nonjudgmental way when it's 2am and you're microwaving Cup O' Noodles
 
 ## If you could have an unlimited amount of anything, what would it be?
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
 * Brandon: warm chocolate chip cookies
 * Grace: Diet peach snapple!!
+* Crystal: Chewing gum
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
 * Grace: I've never seen Cats, but I need to so badly!
+* Crystal: Heart says Jellylorum, brain says Jennyanydots 
 
-<<<<<<< HEAD
-=======
-## What's your most (harmless) embarassing moment?
-* Grace: I once fell down an entire set of bleachers at a high school football game as a freshman!
->>>>>>> 0ab0ca26a396dd27e1beda2ed36d893283b330bc
