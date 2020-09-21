@@ -31,12 +31,14 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
 * Emma: Two on my longtime bucket list are Iceland (though I despair of ever learning Icelandic) and New Zealand. I was once a few weeks away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna!
 * Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or make a trip to the Faroe Islands or somewhere equally remote and dreary. 
+* Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the pandemic happened.
 
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why? 
 * Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop).
 * Emma: I've been listening to this podcast lately called "Dolly Parton's America," so I'm going to have to go "Jolene" on this one.
 Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 * Elise: I have a recurring daydream in which I absolutely crush T-Pain's "Buy You a Drank" (if only lol), but I would also love to give "Alone" by Heart a go...or, depending on what hour of the night, I would definitely go for some Shania Twain
+* Brandon: 
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed!
@@ -44,3 +46,4 @@ Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (ext
 * Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
 * Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
+## What cat from Cats are you?
