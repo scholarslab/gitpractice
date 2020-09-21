@@ -30,11 +30,9 @@ Fill in your answers to each icebreaker question, then add a question and answer
 (also, Emma, remind me to tell you about the time I once spent 15 minutes during a seminar desperately trying to explain the artistic merits of the movie Clue much to my classmates' dismay)
 * Emma: My favorite movie is a bad movie: Clue (1985).
 * Elise: Yongary: Monster from the Deep (1967), an Awful Movie Night classic
-<<<<<<< HEAD
 * Aaron: Not a huge fan of movies so bad they're good. If I think of one I'll come back to this. 
-=======
 * Brandon: Anything with Nicolas Cage in it. I learned last night that he was the top choice for the lead role in Eternal Sunshine of the Spotless Mind. 
->>>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
+
 ## What's a spot in the world you haven't been, but would really like to visit?
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali).
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland?
@@ -78,4 +76,3 @@ Savanna: I would have to go with Total Eclipse of the Heart by Bonnie Tyler (ext
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
 
->>>>>> c88b3fa1172b804a5d6116bb3df9924f2f7b5921
