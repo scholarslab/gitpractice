@@ -35,8 +35,8 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali). 
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland? 
 * Emma: Two on my longtime bucket list are Iceland (though I despair of ever learning Icelandic) and New Zealand. I was once a few weeks 
-away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna! * Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or 
-make a trip to the Faroe Islands or somewhere equally remote and dreary. 
+away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna! 
+* Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or make a trip to the Faroe Islands or somewhere equally remote and dreary. 
 * Aaron: Oh yes great question! Right now Georgia and Armenia are probably top of my list. Also eventually Morocco, Ireland, Polynesia. 
 * Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the 
 pandemic happened.
