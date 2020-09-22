@@ -56,14 +56,8 @@ Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed! 
-<<<<<<< HEAD
 * Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. 
 * Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
-=======
-* Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. Actually... Bali might just be my favorite scent. There's something about the indescribable mix of incense, food stalls, fresh flowers, burning trash, and mysterious other things that's magical. Not that I'm for trash burning. Just to clarify. 
-* Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a 
-favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
->>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing.
 * Grace: I’m very basic, scent-wise—give me a good autumn-themed Yankee candle and I’m set! What’s weird is that there are some scents everyone seems to love but I absolutely can’t stand—that Mrs. Meyers soap everybody goes gaga for makes me want to throw up. I want to like it because so many people I know use it, but I can’t!
 * Shane: I think probably some kind of food aroma, for the standard reasons. Maybe Tunisian harrisa? Or that evergreen Beijing street food favorite, spicy cumin lamb skewers.
@@ -74,35 +68,25 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Grace: Whoever wrote this question—we are soulmates! I used to do college interviews for prospective applicants, and this was the “wacky fun question” I would ask at the end of the interview. I would say that I’m a frying pan—I’m useful for a lot of stuff, and if you mess up doing things with another fancier method, I can always find a way to pull together the wreckage and make things work. Sometimes I get lost in the kitchen cabinets, though, and it takes a little effort to find me!
 * Brandon: Instant pot
 * Crystal: Microwave, because I'm there for you in a gentle, nonjudgmental way when it's 2am and you're microwaving Cup O' Noodles
-<<<<<<< HEAD
 * Emma: A thermometer. They're precise and versatile, and also metaphorically they can read the room pretty well. I like to think I can tell how those around me are feeling, though that's harder over Zoom! 
-=======
 * Shane: Coffee grinder is the obvious answer because I love coffee and precision machinery, but maybe also a propane torch because fire is pretty cool.
 * Savanna: Spork. Weird, totally random, works harder than it has to, seemingly frivolous but surprisingly useful, likely the result of compromise rather than necessity or first choice, loves nasi goreng, ramen, and soup in general. 
->>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
 
 ## If you could have an unlimited amount of anything, what would it be?
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
 * Brandon: warm chocolate chip cookies
 * Grace: Diet peach snapple!!
 * Crystal: Chewing gum
-<<<<<<< HEAD
-* Emma: Rufus snuggles
-=======
 * Shane: Unlimited time would be a neat trick, but if we're talking about material things then maybe geothermal energy?
 * Elise: Edible cookie dough!
 * Savanna: Albanese gummi bears. Or, under the current global circumstances, maybe toilet paper. 
->>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
+* Emma: Rufus snuggles
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
 * Grace: I've never seen Cats, but I need to so badly!
 * Crystal: Heart says Jellylorum, brain says Jennyanydots 
-<<<<<<< HEAD
-* Emma: I like musicals, but unfortunately I just don't know Cats at all. Briefly skimming the plot on Wikipedia... I'm not a Theatre Cat but "Gus" as short for "Asparagus" is amazing.
-
-=======
 * Shane: Based only on my favorite bad movie podcast's episode on the movie, Jennyanydots.
 * Elise: I'm going to go with Grizabella because I love the fallen diva energy, regardless of whether or not she accurately represents me. 
 * Savanna: According to a Buzzfeed-style quiz found on the interwebs, I am Skimbleshanks, though after glossing over the wikipedia page on the musical I'm also digging Gus's existential crisis vibe. Take this as you will. 
->>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
+* Emma: I also took a BuzzFeed quiz and got Macavity Cat. Apparently this is because I live a secret double life and put walls up. I don't know how choosing "whole milk" as my milk option got me here, but oh well.
