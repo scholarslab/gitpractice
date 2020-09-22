@@ -57,7 +57,7 @@ Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed! 
-* Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. 
+* Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. Actually... Bali might just be my favorite scent. There's something about the indescribable mix of incense, food stalls, fresh flowers, burning trash, and mysterious other things that's magical. Not that I'm for trash burning. Just to clarify. 
 * Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a 
 favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing.
@@ -71,6 +71,7 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Brandon: Instant pot
 * Crystal: Microwave, because I'm there for you in a gentle, nonjudgmental way when it's 2am and you're microwaving Cup O' Noodles
 * Shane: Coffee grinder is the obvious answer because I love coffee and precision machinery, but maybe also a propane torch because fire is pretty cool.
+* Savanna: Spork. Weird, totally random, works harder than it has to, seemingly frivolous but surprisingly useful, likely the result of compromise rather than necessity or first choice, loves nasi goreng, ramen, and soup in general. 
 
 ## If you could have an unlimited amount of anything, what would it be?
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
@@ -78,7 +79,8 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Grace: Diet peach snapple!!
 * Crystal: Chewing gum
 * Shane: Unlimited time would be a neat trick, but if we're talking about material things then maybe geothermal energy?
-* Elise: Edible cookie dough! 
+* Elise: Edible cookie dough!
+* Savanna: Albanese gummi bears. Or, under the current global circumstances, maybe toilet paper. 
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
@@ -86,3 +88,4 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Crystal: Heart says Jellylorum, brain says Jennyanydots 
 * Shane: Based only on my favorite bad movie podcast's episode on the movie, Jennyanydots.
 * Elise: I'm going to go with Grizabella because I love the fallen diva energy, regardless of whether or not she accurately represents me. 
+* Savanna: According to a Buzzfeed-style quiz found on the interwebs, I am Skimbleshanks, though after glossing over the wikipedia page on the musical I'm also digging Gus's existential crisis vibe. Take this as you will. 
