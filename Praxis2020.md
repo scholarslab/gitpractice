@@ -35,12 +35,12 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Savanna: What a great question! I'm 1000% OBSESSED with Bali, as you'll soon find out, but I have in fact been there already, so that's not helpful. Maybe Egypt (which has AMAZING traditional music)? Or Rome or Austria (my fam is from there so that would be cool)? I would also love to see the Bagan temples in Myanmar. And Capetown. IDK I want to go everywhere I love traveling (though I've only been to Bali). 
 * Crystal: Corny answer, I know, but I'd love to go to Paris. I'd also really like to see an active volcano someday--so, Hawai'i or Iceland? 
 * Emma: Two on my longtime bucket list are Iceland (though I despair of ever learning Icelandic) and New Zealand. I was once a few weeks 
-away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna! * Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or 
-make a trip to the Faroe Islands or somewhere equally remote and dreary. 
+away from going to Egypt (to St. Catherine's Monastery in Sinai) when it suddenly became unsafe to go, so I'd love to join you there too Savanna! 
+* Elise: In short, everywhere!  But if I had to pick a couple, I'd say Santorini, Greece and Mexico City...I'm dying to see Frida Kahlo's house.  Oh, but I might have to meet up with Emma in New Zealand.  Or make a trip to the Faroe Islands or somewhere equally remote and dreary. 
 * Aaron: Oh yes great question! Right now Georgia and Armenia are probably top of my list. Also eventually Morocco, Ireland, Polynesia. 
 * Brandon: Hmm…I think I'd like to go to Portugal. Eliza and I were planning to go for a second honeymoon before the pandemic happened.
 * Grace: Vienna! I was going to try to plan a trip there in the next few years, but then the pandemic happened and….lol, who knows anymore. I’ve already been to Rome, but I would love to go back. 
-
+* Shane: Lofoten Islands, Patagonia, that Shiba Inu Sweet Potato stand in Hokkaido.
 
 ## If I told you I would give you a million dollars if you karaoke-sang one song perfectly, with no mistakes, and with 110% gusto, what song would you pick and why?
 * Crystal: I love this question so much wow. If we're early in the evening: Bruce Springsteen, Born to Run, because I need all my faculties to get his "mumbly but energized" singing style. If we're later in the evening: Call Me Maybe, Carly Rae Jepsen, because being middle school burned it into my brain (and also it's a Bop). 
@@ -49,16 +49,24 @@ make a trip to the Faroe Islands or somewhere equally remote and dreary.
 Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher 
 * Elise: I have a recurring daydream in which I absolutely crush T-Pain's "Buy You a Drank" (if only lol), but I would also love to give "Alone" by Heart a go...or, depending on what hour of the night, I would definitely go for some Shania Twain 
 * Aaron: Probably something by Celine Dion tbh. I grew up on that. 
-* Brandon: "The Shane Song"
+* Brandon: "The Shane Song" [Ed.-I don't know what this is.]
 * Grace: I once sang “What’s Up” by Four Non Blondes at a karaoke bar in Little Rock, Arkansas that turned out to be filled with semi-professional karaoke singers preparing for an upcoming competition. Because it’s such a weird, cherished memory, I would love to do it again! Another thing the pandemic ruined—I was always trying to get people to go do karaoke with me in Charlottesville, but alas.
+* Shane: "The People are the Heroes Now" from Adams's *Nixon in China*
 
 ## What's your favorite scent and why?
 * Emma: Like Elise, I love scented candles, and also just scents in general. I came home from the grocery store with a cinnamon broom yesterday, so that scent is currently winning. I associate it with autumn and coziness. 
 * Crystal: I love the smell of clean laundry the day after you've washed it, when it's faded a little bit. It's very comforting and home-y and makes me feel refreshed! 
+<<<<<<< HEAD
 * Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. 
 * Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
+=======
+* Savanna: I also love scents in general lol. I'm definitely a candle person! In terms of my day-to-day, I am really into  warm-musky-vanilla-caramel-sugary-pistachio type scents right now. In terms of nostalgia, I'm very partial at the moment to incense-- it reminds me of being in Bali with my friends/host family. Actually... Bali might just be my favorite scent. There's something about the indescribable mix of incense, food stalls, fresh flowers, burning trash, and mysterious other things that's magical. Not that I'm for trash burning. Just to clarify. 
+* Elise: Pretty sure scents are somehow my love langauge, so I'm all about this, especially since y'all are on board, too.  As far as a 
+favorite, it definitely depends on my mood/the season.  A good bet is usually some kind of lavender/basil/herbs in general combination. 
+>>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
 * Aaron: Freshly cut grass and gasoline. Essentially lawnmowing. Added benefit if I'm not doing the mowing.
 * Grace: I’m very basic, scent-wise—give me a good autumn-themed Yankee candle and I’m set! What’s weird is that there are some scents everyone seems to love but I absolutely can’t stand—that Mrs. Meyers soap everybody goes gaga for makes me want to throw up. I want to like it because so many people I know use it, but I can’t!
+* Shane: I think probably some kind of food aroma, for the standard reasons. Maybe Tunisian harrisa? Or that evergreen Beijing street food favorite, spicy cumin lamb skewers.
 
 ## If you were a kitchen utensil/kitchen object in general, which would you be and why? 
 * Elise: I'm thinking a slow cooker.  I'm all about slow, steady effort to produce something great
@@ -66,18 +74,35 @@ Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 * Grace: Whoever wrote this question—we are soulmates! I used to do college interviews for prospective applicants, and this was the “wacky fun question” I would ask at the end of the interview. I would say that I’m a frying pan—I’m useful for a lot of stuff, and if you mess up doing things with another fancier method, I can always find a way to pull together the wreckage and make things work. Sometimes I get lost in the kitchen cabinets, though, and it takes a little effort to find me!
 * Brandon: Instant pot
 * Crystal: Microwave, because I'm there for you in a gentle, nonjudgmental way when it's 2am and you're microwaving Cup O' Noodles
+<<<<<<< HEAD
 * Emma: A thermometer. They're precise and versatile, and also metaphorically they can read the room pretty well. I like to think I can tell how those around me are feeling, though that's harder over Zoom! 
+=======
+* Shane: Coffee grinder is the obvious answer because I love coffee and precision machinery, but maybe also a propane torch because fire is pretty cool.
+* Savanna: Spork. Weird, totally random, works harder than it has to, seemingly frivolous but surprisingly useful, likely the result of compromise rather than necessity or first choice, loves nasi goreng, ramen, and soup in general. 
+>>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
 
 ## If you could have an unlimited amount of anything, what would it be?
 * Aaron: Right now I'd have to say compressed CO2 because I love making bubbly water but it can be really hard to find (especially now). 
 * Brandon: warm chocolate chip cookies
 * Grace: Diet peach snapple!!
 * Crystal: Chewing gum
+<<<<<<< HEAD
 * Emma: Rufus snuggles
+=======
+* Shane: Unlimited time would be a neat trick, but if we're talking about material things then maybe geothermal energy?
+* Elise: Edible cookie dough!
+* Savanna: Albanese gummi bears. Or, under the current global circumstances, maybe toilet paper. 
+>>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
 * Grace: I've never seen Cats, but I need to so badly!
 * Crystal: Heart says Jellylorum, brain says Jennyanydots 
+<<<<<<< HEAD
 * Emma: I like musicals, but unfortunately I just don't know Cats at all. Briefly skimming the plot on Wikipedia... I'm not a Theatre Cat but "Gus" as short for "Asparagus" is amazing.
 
+=======
+* Shane: Based only on my favorite bad movie podcast's episode on the movie, Jennyanydots.
+* Elise: I'm going to go with Grizabella because I love the fallen diva energy, regardless of whether or not she accurately represents me. 
+* Savanna: According to a Buzzfeed-style quiz found on the interwebs, I am Skimbleshanks, though after glossing over the wikipedia page on the musical I'm also digging Gus's existential crisis vibe. Take this as you will. 
+>>>>>>> 39c7f569d0290257bb484fd546fea9033f573a0f
