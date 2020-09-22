@@ -84,3 +84,4 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Grace: I've never seen Cats, but I need to so badly!
 * Crystal: Heart says Jellylorum, brain says Jennyanydots 
 * Shane: Based only on my favorite bad movie podcast's episode on the movie, Jennyanydots.
+* Elise: I'm going to go with Grizabella because I love the fallen diva energy, regardless of whether or not she accurately represents me. 
