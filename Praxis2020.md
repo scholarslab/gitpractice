@@ -89,4 +89,8 @@ Heart by Bonnie Tyler (extended version, of course), or almost anything by Cher
 * Shane: Based only on my favorite bad movie podcast's episode on the movie, Jennyanydots.
 * Elise: I'm going to go with Grizabella because I love the fallen diva energy, regardless of whether or not she accurately represents me. 
 * Savanna: According to a Buzzfeed-style quiz found on the interwebs, I am Skimbleshanks, though after glossing over the wikipedia page on the musical I'm also digging Gus's existential crisis vibe. Take this as you will. 
-* Emma: I also took a BuzzFeed quiz and got Macavity Cat. Apparently this is because I live a secret double life and put walls up. I don't know how choosing "whole milk" as my milk option got me here, but oh well.
+* Emma: Answer change: I also took a BuzzFeed quiz and got Macavity Cat. Apparently this is because I live a secret double life and put walls up. I don't know how choosing "whole milk" as my milk option got me here, but oh well.
+
+## I think Grace's question about a (harmless) embarassing moment got deleted. How, I don't know. Reinserting that here! 
+* Grace: Fell down an entire set of bleachers as a freshman in high school. 
+* Emma: I faint a lot because genetics are great. This has led to many embarassing moments. I fainted off a horse when I was 4. I fainted in front of a library in divinity school. And when I broke my wrist last December, I fainted because it hurt, which is NOT a helpful reaction to pain.
