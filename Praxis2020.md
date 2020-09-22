@@ -78,6 +78,7 @@ favorite, it definitely depends on my mood/the season.  A good bet is usually so
 * Grace: Diet peach snapple!!
 * Crystal: Chewing gum
 * Shane: Unlimited time would be a neat trick, but if we're talking about material things then maybe geothermal energy?
+* Elise: Edible cookie dough! 
 
 ## What cat from Cats are you?
 * Aaron: Most days Munkustrap but some days I feel like Old Deuteronomy.
