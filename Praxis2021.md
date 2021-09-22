@@ -37,7 +37,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Ideal nap length?
 * Joseph: 20-40 minutes
-* Shane: 35 minutes
+* Shane: 235 minutes
 * Jacqui: 2 hours 
 
 ## Favorite novel? 
