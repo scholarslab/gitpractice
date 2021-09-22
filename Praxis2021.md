@@ -17,7 +17,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
-*Jacqui: So hard to choose! Bad movies are a passion of mine. Anything from the Japanese studio Nikkatsu but especially by Seijun Suzuki. John Waters' collaborations with Divine. Pam Grier's blaxploitation films. Black Snake Moan (2006) Gator Bait (1974) Rock and Roll High School (1979) Cannibal Women in the Avocado Jungle of Death (1989) 
+* Jacqui: So hard to choose! Bad movies are a passion of mine. Anything from the Japanese studio Nikkatsu but especially by Seijun Suzuki. John Waters' collaborations with Divine. Pam Grier's blaxploitation films. Black Snake Moan (2006) Gator Bait (1974) Rock and Roll High School (1979) Cannibal Women in the Avocado Jungle of Death (1989) 
 * Tarushi: Love Actually (2003)
 * Jennifer: Cellular (2004)
 * Joseph: Point Break (1991)
@@ -27,21 +27,18 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jennifer: Gin & Tonic 
 * Joseph: Sanpellegrino Limonata
 * Shane: Ethiopian natural processed coffee (AM), Ardbeg (PM)
-*Jacqui: Grapefruit juice 
+* Jacqui: Grapefruit juice 
 
 ## What is a current "earworm" you have stuck in your head?
 * Jennifer: Ticket To Ride by KAWALA 
 * Joseph: Superstition by Stevie Wonder
 * Shane: Rachmaninoff PC 3 (Argerich)
-*Jacqui: Free Money by Patti Smith 
+* Jacqui: Free Money by Patti Smith 
 
 ## Ideal nap length?
 * Joseph: 20-40 minutes
 * Shane: 35 minutes
-<<<<<<< HEAD
-*Jacqui: 2 hours 
+* Jacqui: 2 hours 
 
 ## Favorite novel? 
-Jacqui: Hadriana in All My Dreams (Hadriana dans tous mes rêves) by René Depestre 
-=======
->>>>>>> 96a7506454eb49861b34003833457817dbd3d4f1
+* Jacqui: Hadriana in All My Dreams (Hadriana dans tous mes rêves) by René Depestre 
