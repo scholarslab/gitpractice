@@ -23,10 +23,13 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Tarushi: Cuba Libre (Rum, Coke, Lime)
 * Jennifer: Gin & Tonic 
 * Joseph: Sanpellegrino Limonata
+* Shane: Ethiopian natural processed coffee (AM), Ardbeg (PM)
 
 ## What is a current "earworm" you have stuck in your head?
 * Jennifer: Ticket To Ride by KAWALA 
 * Joseph: Superstition by Stevie Wonder
+* Shane: Rachmaninoff PC 2 (Argerich)
 
 ## Ideal nap length?
 * Joseph: 20-40 minutes
+* Shane: 35 minutes
