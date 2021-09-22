@@ -51,7 +51,10 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jacqui: Hadriana in All My Dreams (Hadriana dans tous mes rêves) by René Depestre 
 * Shane: *Look to Windward* by Ian Banks
 * Susan: A recent favs are *Exit West* by Mohsin Hamed and *Homegoing* by Yaa Gyasi
+* Joseph: *Beloved* by Toni Morrison
 
 ## Favorite place you've visited? 
 * Susan: Istanbul
 * Shane: Havana
+* Jacqui: second for Havana 
+* Joseph: Hoi An, Vietnam
