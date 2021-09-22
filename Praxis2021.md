@@ -54,3 +54,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Favorite place you've visited? 
 * Susan: Istanbul
+* Shane: Havana
