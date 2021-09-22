@@ -5,8 +5,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor.
 * Jennifer: Second Tacos Gomez and adding Barbies Burrito Barn
 
-## What are the best and worst [American state flag 
-## designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
+## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
 * Shane: Best are clearly Texas and New Mexico. Iowa is also pretty good! Worst is Idaho, which incredibly contains the phrase "State of Idaho" twice. 
 
 ## What's your favorite bad movie?
