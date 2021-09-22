@@ -3,6 +3,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Who makes the best tacos in town? 
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor.
+* Tarushi: Brazos Tacos are great
 * Jennifer: Second Tacos Gomez and adding Barbies Burrito Barn
 * Joseph: La Michoacana
 
