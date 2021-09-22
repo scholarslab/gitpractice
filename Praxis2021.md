@@ -3,6 +3,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Who makes the best tacos in town? 
 * Shane: Tacos Gomez for carne asada, Cafe Andrade for al pastor.
+* Tarushi: Brazos Tacos are great
 * Jennifer: Second Tacos Gomez and adding Barbies Burrito Barn
 
 ## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
@@ -21,3 +22,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What is a current "earworm" you have stuck in your head?
 * Jennifer: Ticket To Ride by KAWALA 
+* Tarushi: The Girl from Ipanema - Stan Getz and João Gilberto
