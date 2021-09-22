@@ -42,3 +42,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Favorite novel? 
 * Jacqui: Hadriana in All My Dreams (Hadriana dans tous mes rêves) by René Depestre 
+* Shane: *Look to Windward* by Ian Banks
