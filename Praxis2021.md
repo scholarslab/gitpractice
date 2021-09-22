@@ -38,7 +38,10 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## Ideal nap length?
 * Joseph: 20-40 minutes
 * Shane: 35 minutes
+<<<<<<< HEAD
 *Jacqui: 2 hours 
 
 ## Favorite novel? 
 Jacqui: Hadriana in All My Dreams (Hadriana dans tous mes rêves) by René Depestre 
+=======
+>>>>>>> 96a7506454eb49861b34003833457817dbd3d4f1
