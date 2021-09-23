@@ -57,4 +57,5 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Susan: Istanbul
 * Shane: Havana
 * Jacqui: second for Havana 
+* Joseph: Hoi An, Vietnam
 
