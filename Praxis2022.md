@@ -4,6 +4,8 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## Who makes the best tacos in town? 
 * Shane: Tacos Gomez for carne asada, Taqueria Chaparro for al pastor.
 * Caroline: Brazos breakfast taco with hot honey
+* Samantha: (Don't judge me, I've never had tacos in town)
+
 
 ## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
 * Shane: Best are clearly Texas and New Mexico. Iowa is also pretty good! Worst is Idaho, which incredibly contains the phrase "State of Idaho" twice. 
@@ -12,3 +14,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Caroline: Tremors
+
