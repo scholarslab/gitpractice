@@ -12,7 +12,5 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
-
-* Winnie: Waiting... (2005) or Labyrinth (1986)
 * Samantha: 
 
