@@ -13,7 +13,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Malcolm: Anything with Kevin Hart in it. 
-* Samantha: 
 * Caroline: Brazos breakfast taco with hot honey
 * Samantha: (Don't judge me, I've never had tacos in town)
 
@@ -24,3 +23,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Caroline: Tremors
+* Malcolm: Anything with Kevin Hart in it. 
