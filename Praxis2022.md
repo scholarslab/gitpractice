@@ -34,4 +34,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Winnie: Waiting... (2005) or Labyrinth (1986)
 * Samantha: 
 
+
+## What's the worst dish you've ever tried?
+* Winnie: foie gras. The texture is the worst. 
 >>>>>>> 961f00190ca452d448d024c7da806def6bfc1d47
