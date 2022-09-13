@@ -29,9 +29,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Caroline: Tremors
 * Malcolm: Anything with Kevin Hart in it. 
 * Winnie: Waiting... (2005) or Labyrinth (1986)
-<<<<<<< HEAD
-* Samantha: 
-=======
 
 ## What's the worst dish you've ever tried?
 * Winnie: foie gras. The texture is the worst. 
@@ -40,4 +37,3 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What are your top 3 favourite/most used apps?
 * Samantha: WhatsApp, Apple Music, Ludo King
->>>>>>> 05fbcc5d8655f0dbaa827ec1bf8278364b9a9287
