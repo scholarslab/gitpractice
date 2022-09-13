@@ -34,6 +34,8 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Winnie: foie gras. The texture is the worst. 
 * Shane: A Wallaby burrito; the meat was basically inoffensive, it's just that it was a "burrito" made by Australians.
 * Samantha: cornmeal porridge. I love oatmeal, but I hate porridge.
+* Malcolm: I honestly can't remember. But, as you all know, I am not a big fan of iceberg lettuce. 
 
 ## What are your top 3 favourite/most used apps?
 * Samantha: WhatsApp, Apple Music, Ludo King
+* Malcolm: PocketCasts, Feedly, Spotify 
