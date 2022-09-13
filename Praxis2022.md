@@ -39,3 +39,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What are your top 3 favourite/most used apps?
 * Samantha: WhatsApp, Apple Music, Ludo King
 * Malcolm: PocketCasts, Feedly, Spotify 
+
+## What's your go-to snack when you are stressed? (if you have one?)
+* Malcolm: I'm a big fan of Nutella 
