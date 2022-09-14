@@ -6,10 +6,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Malcolm: Brazos Tacos (Unfortunately, I need to explore more.)
 * Samantha: (Don't judge me, I've never had tacos in town)
 
-## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
-* Shane: Best are clearly Texas and New Mexico. Iowa is also pretty good! Worst is Idaho, which incredibly contains the phrase "State of Idaho" twice.
-* Malcolm: I honestly have no clue what the best state flag is. But the worst is Florida becasue it looks exactly like Alabama's. 
-
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
 * Malcolm: Anything with Kevin Hart in it. 
@@ -22,6 +18,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Samantha: Loving the archipelagic vibes of Alaska's flag.
 * Caroline: Best is Arizona and worst is Idaho
 * Winnie: I agree New Mexico's is pretty cool, and also Arizona's. California's flag is really boring. It looks like it was made in Microsoft Word. 
+* Malcolm: I honestly have no clue what the best state flag is. But the worst is Florida becasue it looks exactly like Alabama's. 
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995)
