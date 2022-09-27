@@ -37,7 +37,9 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Samantha: WhatsApp, Apple Music, Ludo King
 * Malcolm: PocketCasts, Feedly, Spotify 
 * Shane: Signal, Twitter, the steamed edamame with Thai chili and garlic at Chimm
+* Winnie: Reddit, WhatsApp, Cats & Soup
 
 ## What's your go-to snack when you are stressed? (if you have one?)
 * Malcolm: I'm a big fan of Nutella 
 * Shane: Ice cream; when I had the espresso machine set up, I'd make affogato.
+* Winnie: peanut butter on a spoon, or any kind of chocolate available
