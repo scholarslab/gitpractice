@@ -3,9 +3,12 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Who makes the best tacos in town? 
 * Shane: Tacos Gomez
+*Katie: Can't eat tacos, allergic to onions sadly
 
 ## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
 * Shane: Best are clearly Texas and New Mexico. I have a weird soft spot for Iowa! Worst is Idaho, which incredibly contains the words "State of Idaho" twice.
+*Katie: Literally could not tell you what a single state flag looks like 
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995) - I think this is the first depiction of a pizza being ordered through the Internet.
+*Katie: Plan 9 From Outerspace 
