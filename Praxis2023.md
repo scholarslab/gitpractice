@@ -10,4 +10,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Amanda: Texas as both best/worst. But I also need to tell yall that the Isle of Man's flag is currently my favorite country-ish entity flag as it is wild (3 legs!?).
 
 ## What's your favorite bad movie?
-* Shane: The Net (1995) - I think this is the first depiction of a pizza being ordered through the Internet.
+* Shane: The Net (1995) -- I think this is the first depiction of a pizza being ordered through the Internet.
