@@ -11,7 +11,9 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's your favorite bad movie?
 * Oriane: any Neil Breen movie is a gem. Personal favourites: Pass Thru (2016), Fateful Findings (2021). Favourite quote: "I resign today, as President of The Bank". 
+* Kristin: Hercules Unchained (1959) -- I love this movie because it's featured on Mystery Science Theater 3000, where they spend the whole episode riffing on the movie. 
 
 ## If you were a cocktail (or a mocktail) what would you be made of and what would your name be?
-"Pikoù Panez Under the Sun": prosecco, vinho verde, (French) cider, lavender, rose, flower petals, orgeat, brown sugar, lime, chili powder.
-* Kristin: Hercules Unchained (1959) -- I love this movie because it's featured on Mystery Science Theater 3000, where they spend the whole episode riffing on the movie. 
+* Oriane: "Pikoù Panez Under the Sun": prosecco, vinho verde, (French) cider, lavender, rose, flower petals, orgeat, brown sugar, lime, chili powder.
+* Kristin: something very sweet! My name would probably be something silly like "the most basic mocktail ever"
+
