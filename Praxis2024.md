@@ -11,4 +11,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995) -- I think this is the first depiction of a pizza being ordered through the Internet.
-* Amna: The Dictator
+* Amna: The Dictator - it pains me to make this public
+
+## What was your favourite cartoon character as a child?
