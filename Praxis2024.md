@@ -34,7 +34,8 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## Who was your first celebrity crush?
 * Emmy: Mitchell Musso
+* Gramond: Kyla Pratt
 
 ## What is one of your hobbies?
 * Emmy: biking
-* Gramond: Watching sports
+* Gramond: Watching sports (American football, basketball)
