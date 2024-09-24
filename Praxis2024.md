@@ -37,4 +37,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What is one of your hobbies?
 * Emmy: biking
-* Gramond: Growing up, it was playing basketball 
+* Gramond: Watching sports
