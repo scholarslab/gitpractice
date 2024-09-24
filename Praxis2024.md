@@ -12,3 +12,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 
 ## What's your favorite bad movie?
 * Emmy: The Pink Panther (2006)
+
+## Who was your first celebrity crush?
+* Emmy: Mitchell Musso
