@@ -39,4 +39,5 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What is one of your hobbies?
 * Emmy: biking
 * Gramond: Watching sports (American football, basketball)
+* Brandon: playing music
 * Amna: painting?
