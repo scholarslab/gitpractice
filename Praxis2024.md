@@ -35,17 +35,24 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Gramond: Superspeed, because I like the ability to get anywhere within the blink of an eye. 
 * Shane: charming regional accent
 * Amna: the ability to control probabilities
+* Kristin: the ability to fly!
 
 ## Who was your first celebrity crush?
 * Emmy: Mitchell Musso
 * Gramond: Kyla Pratt
 * Amna: Hrithik Roshan
+* Kristin: Apolo Ohno
 
 ## What is one of your hobbies?
 * Emmy: biking
 * Gramond: Watching sports (American football, basketball)
 * Brandon: playing music
 * Amna: painting
+* Kristin: baking
 
 ## If you could be any fictional character, who would you be?
 * Amna: Storm from X-men
+* Kristin: Winnie the Pooh
+
+## What's your favorite color?
+* Kristin: blue
