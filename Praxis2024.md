@@ -58,3 +58,6 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## What's your favorite color?
 * Kristin: blue
 * Gramond: blue
+
+## What is your favorite city that you have visited or wish to visit?
+* Gramond: London, England (Visited)
