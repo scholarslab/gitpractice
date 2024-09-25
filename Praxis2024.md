@@ -40,4 +40,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Emmy: biking
 * Gramond: Watching sports (American football, basketball)
 * Brandon: playing music
-* Brandon: writing music
+* Amna: painting?
