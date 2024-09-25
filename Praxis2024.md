@@ -53,6 +53,8 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## If you could be any fictional character, who would you be?
 * Amna: Storm from X-men
 * Kristin: Winnie the Pooh
+* Gramond: The Fresh Prince (the character)
 
 ## What's your favorite color?
 * Kristin: blue
+* Gramond: blue
