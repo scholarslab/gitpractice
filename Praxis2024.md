@@ -36,12 +36,14 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Shane: charming regional accent
 * Amna: the ability to control probabilities
 * Kristin: the ability to fly!
+* Oriane: Understanding every language as if it was my own.
 
 ## Who was your first celebrity crush?
 * Emmy: Mitchell Musso
 * Gramond: Kyla Pratt
 * Amna: Hrithik Roshan
 * Kristin: Apolo Ohno
+* Oriane: Alyssa Milano.
 
 ## What is one of your hobbies?
 * Emmy: biking
@@ -49,15 +51,19 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Brandon: playing music
 * Amna: painting
 * Kristin: baking
+* Oriane: Writing poetry.
 
 ## If you could be any fictional character, who would you be?
 * Amna: Storm from X-men
 * Kristin: Winnie the Pooh
 * Gramond: The Fresh Prince (the character)
+* Oriane: She-Ra! 
 
 ## What's your favorite color?
 * Kristin: blue
 * Gramond: blue
+* Oriane: Any pastel colour.
 
 ## What is your favorite city that you have visited or wish to visit?
 * Gramond: London, England (Visited); Zweibrücken, Germany where I was born (Wish to Visit)
+* Oriane: Plougonvelin (Finistère), where my grandmother is from.
