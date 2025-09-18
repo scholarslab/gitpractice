@@ -22,20 +22,16 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jess: I don't watch movies. 
 * eleanor: i'm not really invested in movies. 
 
-
-## What's your favorite bad movie?
-* Shane: The Net (1995) -- I think this is the first depiction of a pizza being ordered through the Internet. 
-
 ## What food is your spirit animal?
 * Jess: Tacos. Self-explanatory. 
 * zarif: oysters 
 * eleanor: elephant
+* Shane: Also tacos.
 
 ## what's your favorite quick lunch spot at UVA?
 * eleanor: bodo's
+* Shane: Thyme and Co
 
 ## What's the last poem you read?
 * Zarif: My life stood a loaded gun E Dickinson 
 * eleanor: do not go gentle into the night by Dylan Thomas
-
-
