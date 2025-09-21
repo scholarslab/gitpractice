@@ -31,7 +31,9 @@ Fill in your answers to each icebreaker question, then add a question and answer
 ## what's your favorite quick lunch spot at UVA?
 * eleanor: bodo's
 * Shane: Thyme and Co
+* Jess: Also Thyme and Co or Marco & Luca 
 
 ## What's the last poem you read?
 * Zarif: My life stood a loaded gun E Dickinson 
 * eleanor: do not go gentle into the night by Dylan Thomas
+* Jess: Citizen Illegal Jose Olivarez
