@@ -17,6 +17,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jess: The only flag I know is Texas.
 * eleanor: for me the best is flag of alaska for the lineup of the stars.
 * Jeremy: Best is Alaska; Worst is Maryland
+* Jimga: Ohio is cool; Maryland...opps! 
 
 ## What's your favorite bad movie?
 * Shane: The Net (1995) -- I think this is the first depiction of a pizza being ordered through the Internet.
@@ -25,6 +26,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jess: I don't watch movies.
 * eleanor: i'm not really invested in movies.
 * Jeremy: Howard the Duck
+* Jimga: Child's Play.
 
 ## What food is your spirit animal?
 * Jess: Tacos. Self-explanatory.
@@ -32,16 +34,19 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * eleanor: elephant
 * Shane: Also tacos.
 * Jeremy: Cornbread
+* Jimga: Bagels.
 
 ## what's your favorite quick lunch spot at UVA?
 * eleanor: bodo's
 * Shane: Thyme and Co
 * Jess: Also Thyme and Co or Marco & Luca
 * Jeremy: Got Dumplings
+* Jimga: Bodo Bagels.
+
 
 ## What's the last poem you read?
 * Zarif: My life stood a loaded gun E Dickinson
 * eleanor: do not go gentle into the night by Dylan Thomas
 * Jess: Citizen Illegal Jose Olivarez
-
+* Jimga: Telephone Conversation by Wole Soyinka
 * Jeremy: "Be Drunk" by Charles Baudelaire
