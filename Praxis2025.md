@@ -8,6 +8,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jess: Mellow Mushroom.
 * eleanor: crozet pizza (i like their level of saltiness!)
 * Jeremy: Pi-Napo or Fabios
+* Jimga: 'don't like pizza
 
 ## What are the best and worst [American state flag designs](https://en.wikipedia.org/wiki/Flags_of_the_U.S._states_and_territories)
 * Shane: Best are clearly Texas and New Mexico. I have a weird soft spot for Iowa too. Worst is Idaho, which incredibly contains the words "State of Idaho" twice.
