@@ -35,6 +35,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Shane: Also tacos.
 * Jeremy: Cornbread
 * Jimga: Bagels.
+* Leo: Gelato
 
 ## what's your favorite quick lunch spot at UVA?
 * eleanor: bodo's
@@ -42,6 +43,7 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jess: Also Thyme and Co or Marco & Luca
 * Jeremy: Got Dumplings
 * Jimga: Bodo Bagels.
+* Leo: I don't often buy lunch so I'd say my house
 
 
 ## What's the last poem you read?
@@ -50,3 +52,4 @@ Fill in your answers to each icebreaker question, then add a question and answer
 * Jess: Citizen Illegal Jose Olivarez
 * Jimga: Telephone Conversation by Wole Soyinka
 * Jeremy: "Be Drunk" by Charles Baudelaire
+* Leo: I fforgot the title but it was by Pier Paolo Pasolini
